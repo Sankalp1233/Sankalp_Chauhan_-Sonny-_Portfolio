@@ -1,1 +1,1 @@
-# Sankalp_Chauhan_-Sonny-_Portfolio
+# Sankalp_Chauhan_Sonny_Portfolio
